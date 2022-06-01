@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ZeniProg
-- 👀 I’m interested in web-development, guitar playing, video games
+- 👀 I’m interested in web-development, guitar playing, video games and watching serials
 - 🌱 I’m currently learning in school
